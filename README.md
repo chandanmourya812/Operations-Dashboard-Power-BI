@@ -93,7 +93,7 @@ Operations teams often work with data spread across multiple files — attendanc
 
  ## SOICIAL
  
-🔗 [LinkedIn](https://www.linkedin.com/in/chandamourya)
+🔗 [LinkedIn](https://www.linkedin.com/in/chandamourya812)
 
 ## PROJECT
 
